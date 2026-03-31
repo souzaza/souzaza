@@ -1,7 +1,6 @@
 ## Ola, Eu o Kauã Souza
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 😄 Pronouns: ...
+- 🌱 Estudando games, Entra 21
+
 
 
